@@ -7,3 +7,5 @@
 
 <a href="https://rentry.co/mcwifies">
 <img src="https://files.catbox.moe/91fcxg.gif" width="300"> </a>
+<a href="https://atabook.wifiedd.org">
+<img src="https://files.catbox.moe/8xhbv1.gif" width="300"> </a>
