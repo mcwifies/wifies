@@ -2,6 +2,7 @@
 ![](https://files.catbox.moe/oe8oco.gif)
 
 ‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎‎‎Wifies  or   nyxㅤ灰谷 
-‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎‎‎𐔌✚ི ᴗ ╹ ꒱ Married
+‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎‎‎𐔌✚ི ᴗ ╹ ꒱ Married ![](https://i.postimg.cc/xjgTJk6R/0qty69.gif)
 ‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎‎‎𓈒︐He/Him𝅙𝅙୧ᡴ𝅙𝅙۫𝅙𝅙𝅙𝅙݂︑
-![](a)
+
+![https://i.postimg.cc/xjgTJk6R/0qty69.gif](https://rentry.co/mcwifies)
