@@ -7,5 +7,7 @@
 
 <a href="https://rentry.co/mcwifies">
 <img src="https://files.catbox.moe/91fcxg.gif" width="300"> </a>
-<a href="https://atabook.wified.org">
+<a href="https://wified.atabook.org">
 <img src="https://files.catbox.moe/8xhbv1.gif" width="300"> </a>
+
+‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎⠀‎‎⠀‎‎⠀‎‎⠀‎‎‎inspired on 5poke ! 
